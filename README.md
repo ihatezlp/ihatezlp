@@ -25,7 +25,8 @@ $\color{#FFD6AD}★$ $\color{#FF8300}pony's$ $\color{#FF8300}town$ $\color{#FF83
    <div align="center">
     
  <details>
-<summary></summary> 
+<summary><img width="65" height="143" alt="Untitled467_20261102133826" src="https://github.com/user-attachments/assets/ebf5b4c4-23ed-4df1-acde-b60d5d29c524" />
+</summary> 
 
 ***
 $\color{#FF8300}The$ $\color{#FF8300}Short$ $\color{#FF8300}Answer$
