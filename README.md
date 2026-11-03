@@ -2,7 +2,9 @@
 
 [![Hits](https://hits.sh/github.com/call-me-ZLP.svg?style=flat-square&label=Mannequin_mark&extraCount=20&color=fe7d37&labelColor=f69952&logo=Straw)](https://hits.sh/github.com/call-me-ZLP/)
 
-<img width="500" height="499" alt="cb555d326cd71a9855c379403bd35713" src="https://github.com/user-attachments/assets/4a5b331a-74f5-4bde-9226-ae67edf830fb" />
+<img width="720" height="813" alt="Untitled451_20261023144616" src="https://github.com/user-attachments/assets/17db78ef-5ab4-4e0a-934c-ed75b3c9099f" />
+
+$\color{#FFD800}art$ $\color{#FFFFFF}by$ $\color{#9E1512}fern$ 
 
 ***
 
@@ -18,9 +20,7 @@ $\color{#FFD6AD}★$ $\color{#FF8300}I'm$ $\color{#FF8300}from$ $\color{#FF8300}
 
 $\color{#FFD6AD}★$ $\color{#FF8300}My$ $\color{#FF8300}yumeshipper$ $\color{#FF8300}mannequin$ $\color{#FF8300}mark$
 
-<img width="720" height="813" alt="Untitled451_20261023144616" src="https://github.com/user-attachments/assets/17db78ef-5ab4-4e0a-934c-ed75b3c9099f" />
-
-$\color{#FFD800}art$ $\color{#FFFFFF}by$ $\color{#9E1512}fern$ 
+<img width="500" height="499" alt="cb555d326cd71a9855c379403bd35713" src="https://github.com/user-attachments/assets/4a5b331a-74f5-4bde-9226-ae67edf830fb" />
 
    <div align="center">
     
