@@ -28,5 +28,7 @@ $\color{#FFD6AD}★$ $\color{#FF8300}My$ $\color{#FF8300}yumeshipper$ $\color{#F
 <img width="720" height="813" alt="Screenshot_2026-10-23-10-29-51-23" src="https://github.com/user-attachments/assets/6a34f805-9e5f-4276-ab3b-89ff81c82b5a" />
 $\color{#FFD800}art$ $\color{#FFFFFF}by$ $\color{#9E1512}fern$ 
 
+***
+
 <img width="720" height="758" alt="Screenshot_2026-11-04-18-07-29-65" src="https://github.com/user-attachments/assets/4508428a-2cc4-4dcc-88b7-6cffabfaae37" />
 $\color{#FFFFFF}art$ $\color{#9E1512}by$ $\color{#9E1512}Zan$ 
