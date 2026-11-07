@@ -2,9 +2,7 @@
 
 [![Hits](https://hits.sh/github.com/call-me-ZLP.svg?style=flat-square&label=Mannequin_mark&extraCount=20&color=fe7d37&labelColor=f69952&logo=Straw)](https://hits.sh/github.com/call-me-ZLP/)
 
-<img width="720" height="813" alt="Untitled451_20261023144616" src="https://github.com/user-attachments/assets/17db78ef-5ab4-4e0a-934c-ed75b3c9099f" />
-
-$\color{#FFD800}art$ $\color{#FFFFFF}by$ $\color{#9E1512}fern$ 
+<img width="735" height="729" alt="6b4e0a5f13f85a1aa69391832ceb2e89" src="https://github.com/user-attachments/assets/f062853f-ce50-4415-9a73-e201699431cd" />
 
 ***
 
@@ -25,25 +23,10 @@ $\color{#FFD6AD}★$ $\color{#FF8300}My$ $\color{#FF8300}yumeshipper$ $\color{#F
    <div align="center">
     
  <details>
-<summary><img width="65" height="143" alt="Untitled467_20261102133826" src="https://github.com/user-attachments/assets/ebf5b4c4-23ed-4df1-acde-b60d5d29c524" /></summary> 
+<summary>$\color{#FF8300}TY$ $\color{#FF8300}FOR$ $\color{#FF8300}MY$$\color{#FF8300} MANNEQUIN$$\color{#FF8300}MARK$</summary> 
 
-***
-$\color{#FF8300}The$ $\color{#FF8300}Short$ $\color{#FF8300}Answer$
- 
-Wallter and Mark used to be married for 6 years! 💍 They got divorced because they couldn't agree on building materials:
- 
-- Mark loves wood and HATES concrete
-- Wallter loves concrete and thinks wood is inferior
- 
-Wallter was the one who asked for the divorce, and that's why things are awkward between them now 
+<img width="720" height="813" alt="Screenshot_2026-10-23-10-29-51-23" src="https://github.com/user-attachments/assets/6a34f805-9e5f-4276-ab3b-89ff81c82b5a" />
+$\color{#FFD800}art$ $\color{#FFFFFF}by$ $\color{#9E1512}fern$ 
 
-***
-$\color{#FF8300}The$ $\color{#FF8300}Full$ $\color{#FF8300}Story$
-
-- They actually built a house together — half wood, half concrete
-- But after the dvorce, neither of them wanted to keep the house
-- Mark is still heartbroken and secretly loves Wallter, but Wallter has moved on
-- They even had a son together named Lampert! 
-- Mark got banned from a diner because he couldn't stop crying over the breakup
- 
-So basically... their whole relationship ended over wood vs. concrete It's funny but also kind of sad — poor Mark still misses him
+<img width="720" height="758" alt="Screenshot_2026-11-04-18-07-29-65" src="https://github.com/user-attachments/assets/4508428a-2cc4-4dcc-88b7-6cffabfaae37" />
+$\color{#FFD800}art$ $\color{#9E1512}by$ $\color{#9E1512}Zan$ 
