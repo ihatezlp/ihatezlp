@@ -1,7 +1,5 @@
 <div align="center">
 
-[TW](https://docs.google.com/document/d/1CbZsopti-4kITmU9xPmQ5WnZOvTYi_xXpXH3P7yOqOU/edit?usp=drivesdk)
-
 [![Hits](https://hits.sh/github.com/call-me-ZLP.svg?style=flat-square&label=Mannequin_mark&extraCount=20&color=fe7d37&labelColor=f69952&logo=Straw)](https://hits.sh/github.com/call-me-ZLP/)
 
 <img width="735" height="729" alt="6b4e0a5f13f85a1aa69391832ceb2e89" src="https://github.com/user-attachments/assets/f062853f-ce50-4415-9a73-e201699431cd" />
