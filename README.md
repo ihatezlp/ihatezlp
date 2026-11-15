@@ -22,7 +22,7 @@ $\color{#FFD6AD}★$ $\color{#FF8300}I'm$ $\color{#FF8300}from$ $\color{#FF8300}
 
 $\color{#FFD6AD}★$ $\color{#FF8300}My$ $\color{#FF8300}yumeshipper$ $\color{#FF8300}mannequin$ $\color{#FF8300}mark$
 
-<img width="342" height="240" alt="0eac2b834eb8549c83745c56fe3e4c6c" src="https://github.com/user-attachments/assets/281dafe7-599d-43f3-bc33-2ee8f7b157a4" />
+<img width="200" height="200" alt="cdb1013ecf45c60c595f5937c73e44b5" src="https://github.com/user-attachments/assets/b84692d3-9168-42e9-a4c7-7a50c69d3870" />
 
    <div align="center">
     
