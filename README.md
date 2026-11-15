@@ -12,7 +12,7 @@
 
 <div align="center">
  
-$$\color{#FFD6AD}★\space Hello\space i'm\space ZLP/space or/space Zlp/space
+$$\color{#FFD6AD}★\space Hello\space i'm\space ZLP/space or/space Zlp/space}$$
 
 $\color{#FFD6AD}★$ $\color{#FF8300}I'm$ $\color{#FF8300}playing$ $\color{#FF8300}Roblox$ $\color{#FF8300}and$ $\color{#FF8300}pony$ $\color{#FF8300}town$ $\color{#FF8300}game!$
 
