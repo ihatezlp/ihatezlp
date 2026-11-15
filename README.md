@@ -2,7 +2,11 @@
 
 [![Hits](https://hits.sh/github.com/call-me-ZLP.svg?style=flat-square&label=Mannequin_mark&extraCount=20&color=fe7d37&labelColor=f69952&logo=Straw)](https://hits.sh/github.com/call-me-ZLP/)
 
-<img width="735" height="729" alt="6b4e0a5f13f85a1aa69391832ceb2e89" src="https://github.com/user-attachments/assets/f062853f-ce50-4415-9a73-e201699431cd" />
+<img width="99" height="56" alt="Untitled498_20261115133024" src="https://github.com/user-attachments/assets/96ed4514-a74e-48da-bfaf-159d2ad55712" />
+<img width="99" height="56" alt="Untitled498_20261115133425" src="https://github.com/user-attachments/assets/920f751b-0a62-48c2-bee8-a0d804531d01" />
+<img width="99" height="56" alt="Untitled498_20261115133536" src="https://github.com/user-attachments/assets/a5bdd84a-5da6-4568-b35f-881f3461fd75" />
+
+<img width="350" height="341" alt="e34ba75fb8b7c168db329256a1ef0bfd" src="https://github.com/user-attachments/assets/43b7279e-8144-4d10-87fb-d117b08600e3" />
 
 ***
 
