@@ -22,12 +22,12 @@ $\color{#FFD6AD}★$ $\color{#FF8300}I'm$ $\color{#FF8300}from$ $\color{#FF8300}
 
 $\color{#FFD6AD}★$ $\color{#FF8300}My$ $\color{#FF8300}yumeshipper$ $\color{#FF8300}mannequin$ $\color{#FF8300}mark$
 
-<img width="200" height="200" alt="cdb1013ecf45c60c595f5937c73e44b5" src="https://github.com/user-attachments/assets/b84692d3-9168-42e9-a4c7-7a50c69d3870" />
+<img width="214" height="200" alt="ddc9211bb27306a4ea973778c7620af7" src="https://github.com/user-attachments/assets/f33388de-80ec-463f-a4e3-bd7c5384cace" />
 
    <div align="center">
     
  <details>
-<summary>$\color{#FF8300}TY$ $\color{#FF8300}FOR$ $\color{#FF8300}MY$ $\color{#FF8300}MANNEQUIN$ $\color{#FF8300}MARK$</summary> 
+<summary>$\color{#FF8300}TY$ $\color{#FF8300}\spaceFOR $\color{#FF8300}MY$ $\color{#FF8300}MANNEQUIN$ $\color{#FF8300}MARK$</summary> 
 
 <img width="720" height="813" alt="Screenshot_2026-10-23-10-29-51-23" src="https://github.com/user-attachments/assets/6a34f805-9e5f-4276-ab3b-89ff81c82b5a" />
 $\color{#FFD800}art$ $\color{#FFFFFF}by$ $\color{#9E1512}fern$ 
