@@ -36,6 +36,8 @@ $\color{#FFD800}art$ $\color{#FFFFFF}by$ $\color{#9E1512}fern$
 <img width="720" height="758" alt="Screenshot_2026-11-04-18-07-29-65" src="https://github.com/user-attachments/assets/4508428a-2cc4-4dcc-88b7-6cffabfaae37" />
 $\color{#FFFFFF}art$ $\color{#9E1512}by$ $\color{#9E1512}Zan$ 
 
+***
+
 <img width="720" height="576" alt="Screenshot_2026-11-16-13-41-26-97" src="https://github.com/user-attachments/assets/650d1b20-a6a2-4d44-95a3-7700d040bafe" />
 
 $${\color{#2D65B3}art\space by\space rock}$$
